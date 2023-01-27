@@ -7,3 +7,7 @@
 <img width="1164" alt="image" src="https://user-images.githubusercontent.com/109775055/215035930-259c20e3-dc73-4e5d-bd17-79ed4d2e07ed.png">
 
 <img width="1164" alt="image" src="https://user-images.githubusercontent.com/109775055/215036010-ae2e8ec7-10bc-4413-8a54-dbcb94bd8971.png">
+
+**독도버스 생태계**
+<img width="999" alt="image" src="https://user-images.githubusercontent.com/109775055/215038379-9f784532-4ec5-4b18-a5eb-ce0deddf520a.png">
+
