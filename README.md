@@ -10,4 +10,4 @@
 
 **독도버스 생태계**
 
-<img width="1090" alt="image" src="https://user-images.githubusercontent.com/109775055/215382716-991cf694-7954-4ef1-8199-7bd0a90cce6e.png">
+<img width="1794" alt="image" src="https://user-images.githubusercontent.com/109775055/215387626-5ad85313-9d7d-48e3-848f-3a72174cf974.png">
